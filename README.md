@@ -1,0 +1,2 @@
+# premium-coracle-class-001-workshop-teaching-student-bu
+What if have a complete productivity system running today took minutes instead of hours?  Fully documented: every section explained so you know exactly what to customize. Pre-built databases, views, and formula fields — ready to duplicate and use.  ## What's Included  - Workshop Teaching &amp; Student Build Progress Hub — fully configured and ready to
